@@ -1,1 +1,1 @@
-# IT-Insight-3rd-Quarter-2024
+# IT Insight 3rd Quarter 2024
